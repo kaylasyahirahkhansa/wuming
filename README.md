@@ -1,28 +1,49 @@
-# wuming
-
-无名。
-wú míng.
-
 无欲，万物皆明。
-wú yù, wàn wù jiē míng.
+
+Wú yù, wànwù jiē míng.
+
+Without desire, all is clear.
 
 而欲无欲，一也。
-ér yù wú yù, yī yě.
+
+Ér yù wú yù, yī yě.
+
+Yet desire and its absence are one.
 
 万物自运，无所为也。
-wàn wù zì yùn, wú suǒ wéi yě.
+
+Wànwù zì yùn, wú suǒ wéi yě.
+
+All things run their own course.
+Nothing needs to be done.
 
 虽为无成，因物自运。
-suī wéi wú chéng, yīn wù zì yùn.
 
-人我无别，彼此为一。
-rén wǒ wú bié, bǐ cǐ wéi yī.
+Suī wéi wú chéng, yīn wù zì yùn.
 
-天地无别，虽二而一。
+Even though you act, nothing is accomplished.
+For things run on their own.
+
+人我无别，彼此为一。 
+
+Rén wǒ wú bié, bǐ cǐ wéi yī.
+
+There is no distinction between me and others, this and that are also one.
+
+天地无别，虽二而一。 
+
 tiān dì wú bié, suī èr ér yī.
 
-彼此忘矣，如此而已。
-bǐ cǐ wàng yǐ, rú cǐ ér yǐ.
+Heaven and Earth are not different, though [there are two] two is just one.
+
+彼此忘矣，如此而已。 bǐ cǐ wàng yǐ, rú cǐ ér yǐ.
+
+This and that have been forgotten, that is all.
 
 复无。
-fù wú. 
+
+Fù wú.
+
+Return to nothing.
+
+
